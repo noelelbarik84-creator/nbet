@@ -1,2 +1,2 @@
 # nbet
-play to win
+play to win.wheel spin
